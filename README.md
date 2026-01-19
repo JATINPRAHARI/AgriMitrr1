@@ -1,2 +1,0 @@
-# AgriMitrr1
-agrimitrr
